@@ -174,7 +174,6 @@ I hope scrolling through this project provides you with insightful understanding
 
 Thank you for taking the time to view my project.
 
-## Want to see same project in difrent difrent more 8 style visit my novypro portfolio.
 
 
 
